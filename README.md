@@ -37,16 +37,15 @@
 𝑫𝒖𝒆 𝒕𝒐 𝒂𝒏𝒐𝒕𝒉𝒆𝒓 𝒔𝒚𝒎𝒑𝒕𝒐𝒎 𝒐𝒇 𝒉𝒊𝒔 𝒃𝒂𝒅 𝒍𝒖𝒄𝒌, 𝒕𝒉𝒆 𝒕𝒆𝒂𝒎𝒔 𝒉𝒆 𝒄𝒉𝒆𝒆𝒓𝒔 𝒇𝒐𝒓 𝒊𝒏 𝒔𝒑𝒐𝒓𝒕𝒔 𝒖𝒔𝒖𝒂𝒍𝒍𝒚 𝒆𝒏𝒅 𝒖𝒑 𝒇𝒂𝒊𝒍𝒊𝒏𝒈.
 𝑰𝒕 𝒊𝒔 𝒂𝒍𝒔𝒐 𝒐𝒏𝒆 𝒐𝒇 𝒕𝒉𝒆 𝒇𝒆𝒘 𝒊𝒏𝒔𝒕𝒂𝒏𝒄𝒆𝒔 𝒐𝒇 𝒉𝒊𝒔 𝒃𝒂𝒅 𝒍𝒖𝒄𝒌 𝒕𝒉𝒂𝒕 𝒃𝒓𝒊𝒏𝒈𝒔 𝒉𝒊𝒎 𝒕𝒐 𝒕𝒆𝒂𝒓𝒔.
 
-𝐖𝐫𝐢𝐭𝐞𝐫 : [@𝐢𝐤𝐱𝟕.𝐚](https://instagram.com/ikx7.a?)
-
 ![4](https://te.legra.ph/file/28d46d8b349f2c4f71cb4.png)
 
-╔═══════ 𝐔𝐩𝐝𝐚𝐭𝐞𝐬 ════════╗
-[![Telegram Group](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/MaximXGroup)
+⊶⊷⊶⊷❍ 𝐔𝐩𝐝𝐚𝐭𝐞𝐬 ❍⊶⊷⊶⊷
+
+[![Telegram Group](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/MaximXGroup)ㅤ
 [![Telegram Channel](https://img.shields.io/badge/Telegram-Channel-brightgreen)](https://t.me/MaximXChannels)
-<br>╚═══════ ▢▢▢▢▢ ════════╝
+<br>
 
-
+𝐖𝐫𝐢𝐭𝐞𝐫 : [@𝐢𝐤𝐱𝟕.𝐚](https://instagram.com/ikx7.a?)<p>
 © Repo Copyright Holder : [𝐘𝐮𝐮 𝐈𝐳𝐮𝐦𝐢](https://t.me/MaximXRobot)
 <p align="center">
 </p>
