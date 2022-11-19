@@ -46,6 +46,12 @@
 ![4](https://github.com/AL3X-Github/Resources/blob/main/Photos/Izumi%20X%20Shikimori's.png)
 
 </details>
+<details>
+<summary><h3>𝐅𝐚𝐧 𝐀𝐫𝐭</h3></summary>
+
+![Fan Art](https://github.com/Al3x-GitHub/Resources/blob/main/Photos/Art.png)
+
+</details>
 <div align="center">
 
 [![Telegram](https://img.shields.io/badge/Group-%232C3454?style=for-the-badge&logo=telegram&logoColor=white)](https://telegram.dog/MaximXGroup) [![Telegram](https://img.shields.io/badge/Channel-%232C3454?style=for-the-badge&logo=telegram&logoColor=white)](https://telegram.dog/MaximXChannels)
