@@ -58,7 +58,8 @@
 
 <h6>
 
-**𝖢𝗈𝗉𝗒𝗋𝗂𝗀𝗁𝗍 :** [**Iᴢυɱi 和泉**](https://telegram.dog/MaximXRobot) 
+**𝖢𝗈𝗉𝗒𝗋𝗂𝗀𝗁𝗍 ⓒ** [**Sʜᴀᴅᴏᴡ 这**](https://github.com/ikx7a) 
 
 </h6>
+</div>
 </div>
